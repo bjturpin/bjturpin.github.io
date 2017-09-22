@@ -1,1 +1,0 @@
-# bjturpin.github.io
